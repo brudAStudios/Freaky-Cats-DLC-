@@ -2,4 +2,4 @@ WARNING: DO NOT GO INTO HORROR MODE IF YOU HAVE SEIZURES, EPILEPSY, OR ANY OTHER
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 DO NOT PLAY WHEN YOU EXPERIENCE MOTION SICKNESS OR DIZZYNESS WHEN YOU USE VIRTUAL REALITY HARDWARE, IT IS FOR YOUR SAFETY.
 ---------------------------------------------------------------------------------------------------------------------------
-THE OWNER OF THE COMPANY WILL NOT BE IN ANY OF THESE SITUATIONS, SO DO NOT FACE ANY LAWSUITS AGAINST US, WE DID NOTHING AGAINST YOUR SUBJECT.
+THE OWNER OF THE COMPANY WILL NOT BE IN ANY OF THESE SITUATIONS, SO DO NOT FILE ANY LAWSUITS AGAINST US, WE DID NOTHING AGAINST YOUR SUBJECT.
